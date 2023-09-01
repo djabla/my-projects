@@ -29,9 +29,14 @@ Description: Another simple e-commerce web app. The web app is built using React
 ## About Me
 
 Feel free to reach out to me via:
+
 Email - dylanjabla07@gmail.com
+
 Facebook - Dylan Jabla
+
 Instagram - @dylan.jabla
+
 Twitter - @DylanJabla
+
 Phone# - +63935-297-0398
 
