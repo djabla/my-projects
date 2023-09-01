@@ -32,11 +32,13 @@ Feel free to reach out to me via:
 
 Email - dylanjabla07@gmail.com
 
-Facebook - Dylan Jabla
+LinkedIn - [Dylan Jabla](https://www.linkedin.com/in/dylan-jabla-630835180/)
 
-Instagram - @dylan.jabla
+Facebook - [Dylan Jabla](https://www.facebook.com/dylan.jabla/)
 
-Twitter - @DylanJabla
+Instagram - [@dylan.jabla](https://www.instagram.com/dylan.jabla/)
+
+Twitter - [@DylanJabla](https://twitter.com/DylanJabla)
 
 Phone# - +63935-297-0398
 
